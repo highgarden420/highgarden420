@@ -17,7 +17,7 @@ Ser a referência principal no mercado de headshops e produtos de cultivo canáb
 
 ## Contato
 
-- **Email:** contato@highgarden.com
+- **Email:** highgardencontato@gmail.com
 - **Instagram:** [@highgarden420](https://www.instagram.com/highgarden420)
 ---
 
